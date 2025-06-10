@@ -1,0 +1,1 @@
+# quis10_statistika
